@@ -1,3 +1,3 @@
 # idSoftware-articles
 
-Working on new book.
+My CV for the TV channel Russia 1 / RTR
